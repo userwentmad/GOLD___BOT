@@ -1,0 +1,2 @@
+# GOLD___BOT
+BOT
